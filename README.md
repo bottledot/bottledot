@@ -10,7 +10,3 @@ I'm mostly AFK but I also watch. 👁👁 You can interact with me if you'd like
 
 I do not have TT/TD so you can do whatever you want. I'll just hide you if you really took it too far.
 ![image](https://user-images.githubusercontent.com/102858874/162765323-ce1ebe39-6da0-45d2-a86e-2a92c4ff2afa.png)
-
-
-
-
